@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zeronerocks
-- 👀 I’m interested in Gaming, Phtography, Medicine and Fitness
+- 👀 I’m interested in Gaming, Photography, Medicine and Fitness
 - 🌱 I’m currently learning Programing; Medicine; And German
 - 💞️ I’m looking to collaborate on Microverse
 - 📫 How to reach me joaoluissrodrigues@outlook.com or instagram/joaoluissrodrigues
